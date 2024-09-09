@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BigDavLuk
+- 👀 I’m interested in CODEING
+- 🌱 I’m currently learning PYTHON
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me bigdavluk@gmail.com
+- 😄 Pronouns: HE/HIM
+- ⚡ Fun fact: I'm under the age of 12 
